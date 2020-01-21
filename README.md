@@ -1,0 +1,2 @@
+# script
+Langsung aja ya
